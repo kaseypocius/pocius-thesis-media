@@ -16,8 +16,8 @@ https://youtu.be/rv-8rVF2RmM
 Enfants, apprenez-nous à parler live@CIRMMT\
 https://youtu.be/m9uFIcjocxE
 
-2023 North American Saxophone Alliance Biennial* Performance\
+2023 North American Saxophone Alliance Biennial* Performance at University of South Missippi\
 https://youtu.be/cNj9XyaA5JU
 
-IIICON2023 (Harvard) Performance\
+Instruments, Interfaces, Infrastructures: Interdisciplinary Conference on Musical Media 2023 Performance at Harvard\
 https://www.youtube.com/watch?v=OreIoIBVwns&ab_channel=TommyDavis
