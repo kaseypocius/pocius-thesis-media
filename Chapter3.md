@@ -7,7 +7,7 @@ A home for all the performance videos included in my thesis
 [T-Tree Demo
 ](https://youtu.be/MEckONWnYTA https://youtu.be/I3z0Mh_6WW4
 ) \
-A Series of Postcards, Blurring Together 
+A Series of Postcards, Blurring Together \
 [Youtube](https://youtu.be/KOhy9aR8rIc
 ) \
 [Direct link to file with ATMOS attached audio
