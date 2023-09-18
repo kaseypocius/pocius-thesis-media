@@ -4,9 +4,7 @@ A home for all the performance videos included in my thesis
 [Synthetic Icescapes
 ](https://www.youtube.com/watch?v=Jn8iVg3SdPk&ab_channel=IDMIL
 ) \
-[T-Tree Demo
-](https://youtu.be/MEckONWnYTA https://youtu.be/I3z0Mh_6WW4
-) \
+[T-Tree Demo](https://youtu.be/MEckONWnYTA https://youtu.be/I3z0Mh_6WW4) \ 
 A Series of Postcards, Blurring Together \
 [Youtube](https://youtu.be/KOhy9aR8rIc
 ) \
