@@ -11,8 +11,7 @@ A home for all the performance videos included in my thesis
 
 [Enfants, apprenez-nous à parler live@CIRMMT](https://www.youtube.com/watch?v=5Otow16e7dk&ab_channel=TommyDavis)
 
-2023 North American Saxophone Alliance Biennial* Performance at University of South Missippi\
-https://youtu.be/cNj9XyaA5JU
+[2023 North American Saxophone Alliance Biennial* Performance at University of South Missippi
+](https://youtu.be/cNj9XyaA5JU)
 
-Instruments, Interfaces, Infrastructures: Interdisciplinary Conference on Musical Media 2023 Performance at Harvard\
-https://www.youtube.com/watch?v=OreIoIBVwns&ab_channel=TommyDavis
+[Instruments, Interfaces, Infrastructures: Interdisciplinary Conference on Musical Media 2023 Performance at Harvard](https://www.youtube.com/watch?v=OreIoIBVwns&ab_channel=TommyDavis)
