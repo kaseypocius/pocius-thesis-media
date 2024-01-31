@@ -9,6 +9,8 @@ A home for all the performance videos included in my thesis
 
 [Cod'a Performance Snippet](https://www.youtube.com/watch?v=n97wToOFiJo&ab_channel=TommyDavis)
 
+[Full Cod'a Performance](https://www.youtube.com/watch?v=iCew_TDMabc&ab_channel=Codesd%27acc%C3%A8s)
+
 [Enfants, apprenez-nous à parler live@CIRMMT](https://www.youtube.com/watch?v=5Otow16e7dk&ab_channel=TommyDavis)
 
 [2023 North American Saxophone Alliance Biennial* Performance at University of South Missippi
